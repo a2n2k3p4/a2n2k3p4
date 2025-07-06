@@ -1,1 +1,1 @@
-# Hello, Hi
+![rice_shower](./assets/__rice_shower_umamusume_drawn_by_yu_muge__ddd207e568653899351f4b4fad3e75ec.jpg)
